@@ -9,6 +9,10 @@ Gift your child a free trial at Tiny Galaxy: [Google Form](https://shorturl.at/m
 Phone Numbers1: [Tripti: +31 645110505] (Tel:0645110505)
                [Padma: +31 645110505] (Tel:0617855139)
 
+
+Phone Numbers1: [Tripti: +31 645110505] (Tel:0645110505)
+               [Padma: +31 645110505] (Tel:0617855139)
+
 Phone Numbers2: [Tripti: +31 (0) 645110505] (Tel:0645110505)
                [Padma: +31 (0) 645110505] (Tel:0617855139)
 
@@ -16,6 +20,9 @@ Phone Numbers3: (Tripti: +31 645110505)[Tel:0645110505]
                (Padma: +31 645110505) [Tel:0617855139]
                
 Phone Numbers4: +31 (0) 645110505 (Tripti), +31 (0) 617855139 (Padma)
+
+Phone Numbers5: [+31 645110505 Tripti](tel:645110505){:target="_blank"}
+
 
 Address: C/o Muziek en Dansschool, 2nd Floor,
          Stadsplein 99,
