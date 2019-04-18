@@ -1,7 +1,10 @@
-Tiny Galaxy - Gateway to knowledge
+Tiny Galaxy, Amstelveen - Gateway to knowledge
 
-Email: tinygalaxyamstelveen@gmail.com
-FB: https://www.facebook.com/tinygalaxy2017/
+Email Id: tinygalaxyamstelveen@gmail.com
+
+Facebook page: https://www.facebook.com/tinygalaxy2017/
+
+Gift your child a free trial at Tiny Galaxy: https://shorturl.at/mSUV5 
 
 Phone Numbers: +31 (0) 645110505 (Tripti), +31 (0) 617855139 (Padma)
    
