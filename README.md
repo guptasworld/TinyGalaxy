@@ -1,6 +1,6 @@
 Tiny Galaxy, Amstelveen - Gateway to knowledge
 
-Email Id: mailto:tinygalaxyamstelveen@gmail.com"{:target="_blank"}
+Email Id: (mailto:tinygalaxyamstelveen@gmail.com){:target="_blank"}
 
 Official Facebook Page: [Facebook page](https://www.facebook.com/tinygalaxy2017/){:target="_blank"}
 
