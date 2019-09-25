@@ -2,7 +2,7 @@ Tiny Galaxy, Amstelveen is an activity club for toddlers from age of 2 to 4 year
 
 Tiny Galaxy is located in heart of Amstelveen in vicinity of Amstelveen Busstation, Library and Stadshart shopping mall. It is conveniently accessible by public transport. P60 and Stadshart car parkings available nearby. 
 
-Gift your child a free trial at Tiny Galaxy: [Submit online form](https://shorturl.at/mSUV5){:target="_blank"}
+Gift your child a free trial at Tiny Galaxy: [Submit online form](https://docs.google.com/forms/d/e/1FAIpQLSegeYMXkW2qanJ4mbEGyDBWWrum8-aZH5iSRrLH7jpcNZrKcg/viewform?vc=0&c=0&w=1){:target="_blank"}
 
 Timimgs: 10:00 AM to 12:30 PM (Mon, Tue, Thu) and 10:00 AM to 12:00 PM (Wed)     
 
