@@ -4,7 +4,7 @@ Tiny Galaxy is located in heart of Amstelveen in vicinity of Amstelveen Busstati
 
 Gift your child a free trial at Tiny Galaxy: [Submit online form](https://docs.google.com/forms/d/e/1FAIpQLSegeYMXkW2qanJ4mbEGyDBWWrum8-aZH5iSRrLH7jpcNZrKcg/viewform?vc=0&c=0&w=1){:target="_blank"}
 
-Timimgs: 10:00 AM to 12:30 PM (Mon, Tue, Thu) and 10:00 AM to 12:00 PM (Wed)     
+Timing: 10:00 AM to 12:30 PM (Mon, Tue, Thu) and 10:00 AM to 12:00 PM (Wed)     
 
 Address: Located on 2nd floor of Muziek en Dansschool Amstelveen, Stadsplein 99, 1181 ZM, Amstelveen
 
