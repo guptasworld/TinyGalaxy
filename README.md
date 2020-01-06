@@ -11,7 +11,7 @@ Address: Located on 2nd floor of Muziek en Dansschool Amstelveen, Stadsplein 99,
 Google maps: [Muziek en Dansschool Amstelveen](https://goo.gl/maps/decCg3eUZcbBnsDU8){:target="_blank"}
          
 
-Phone Numbers: [Ms. Tripti +31 06 45110505](tel:+31645110505){:target="_blank"},
+Phone Numbers /WhatsApp (Click to call): [Ms. Tripti +31 06 45110505](tel:+31645110505){:target="_blank"},
          [Ms. Padma +31 06 17855139](tel:+31617855139){:target="_blank"}
 
 Official Facebook Page: [tinygalaxy2017](https://www.facebook.com/tinygalaxy2017/){:target="_blank"}
