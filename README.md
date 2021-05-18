@@ -6,7 +6,7 @@ Gift your child a free trial at Tiny Galaxy: [Submit online form](https://docs.g
 
 Timing: 10:00 AM to 12:30 PM (Tue, Wed & Fridays).     
 
-Address: Located at Brederolaan 24, 1422 HM Uithoorn (link for Google maps) [Brederolaan 24, Uithoorn](https://goo.gl/maps/e1ymNZfPt8bdwQYz8){:target="_blank"}
+Address on Google maps link: [Brederolaan 24, 1422 HM Uithoorn](https://goo.gl/maps/e1ymNZfPt8bdwQYz8){:target="_blank"}
          
 
 Phone Numbers /WhatsApp (Click to call): [Ms. Tripti +31 06 45110505](tel:+31645110505){:target="_blank"},
