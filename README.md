@@ -1,4 +1,8 @@
 Tiny Galaxy is an activity club for toddlers from age of 2 to 4 years. We are team of experienced facilitators who believe in the importance of giving developmentally appropriate practices, hands-on learning, arts exposure and social and cognitive skills for the youngest of people before starting formal schooling. We strive to provide special care for nurturing children's unique thinking and creativity. 
+                      
+                        ----------------
+Important notice - We are currently not operational. 
+                        ----------------
 
 Tiny Galaxy is located in heart of Uithoorn in vicinity of Uithoorn Busstation and Zijdelwaard shopping mall. It is conveniently accessible by public transport. 
 
