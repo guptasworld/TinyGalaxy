@@ -1,4 +1,4 @@
-Tiny Galaxy is an activity club for toddlers from age of 2 to 4 years. We are team of experienced facilitators who believe in the importance of giving developmentally appropriate practices, hands-on learning, arts exposure and social and cognitive skills for the youngest of people before starting formal schooling. We strive to provide special care for nurturing children's unique thinking and creativity. 
+Tiny Galaxy is an activity club for toddlers from age of 2 to 4 years. We are team of experienced facilitators who believe in the importance of giving developmentally appropriate practices, hands-on learning, arts exposure, social and cognitive skills for the youngest of people before starting formal schooling. We strive to provide special environment for nurturing children's thinking and creativity. 
                       
                         
 **Important notice - We are currently not operational.**
