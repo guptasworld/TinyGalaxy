@@ -1,4 +1,4 @@
-**Important notice - We coming back with a new offering**
+**Important notice - We are currently not operating and shall be coming soon with a new offering.**
 
 Tiny Galaxy is an activity club for toddlers from age of 2 to 4 years. We are team of experienced facilitators who believe in the importance of giving developmentally appropriate practices, hands-on learning, arts exposure, social and cognitive skills for the youngest of people before starting formal schooling. We strive to provide environment for nurturing children's thinking and creativity. 
                        
@@ -14,4 +14,4 @@ Phone Number /WhatsApp (Click to call): [Ms. Tripti +31 06 45110505](tel:+316451
 Official Facebook Page: [tinygalaxy2017](https://www.facebook.com/tinygalaxy2017/){:target="_blank"}
 
 
-**@Tiny Galaxy is a registered business: KvK: 88106292 BTW: NL858313406B01**
+**Tiny Galaxy is a registered business:** KvK: 88106292 BTW: NL858313406B01
